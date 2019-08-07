@@ -1,1 +1,0 @@
-# Detis-Lova
